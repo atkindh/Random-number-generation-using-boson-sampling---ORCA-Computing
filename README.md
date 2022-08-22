@@ -9,9 +9,9 @@ GitHub ID: yiyunwu2001<br>
 Email: yiyunwu@arizona.edu</p>
 
 **Team Member 2: Atkin Hyatt**<br>
-<p>Discord ID:<br>
-GitHub ID:<br>
-Email: atkindavidhyatt@arizona.edu</p>
+<p>Discord ID: AtkinHyatt#9046<br>
+GitHub ID: atkindh<br>
+Email: atkindh@gmail.com</p>
 
 **Name of Pitch Presenter:**
 
